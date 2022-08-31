@@ -1,0 +1,1 @@
+bakma gerek yok
